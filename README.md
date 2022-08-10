@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rohitraj-hub-hero
 - 👀 I’m interested in ... coding
-- 🌱 I’m currently learning ...10
+- 🌱 I’m currently learning ...1st year
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
